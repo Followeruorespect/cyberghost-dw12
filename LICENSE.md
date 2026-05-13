@@ -1,4 +1,4 @@
-
+Enhance your CyberGhost experience with top CyberGhost Addon | ad-blocker + multi-device-support, the #1 addon. Includes ad-blocker and multi-device-support for a safer and more
 
 
 
